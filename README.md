@@ -1,0 +1,1 @@
+# laba.6.C-.github.io
